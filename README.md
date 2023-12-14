@@ -2,7 +2,7 @@
 # Arnaud Persenda
 Nice France  
 
-Arnaud.PERSENDA@univ-cotedazur.fr  
+arpersenda@gmail.com
 
 +33623553899  
 
@@ -17,7 +17,7 @@ EUR ELMI - University of Côte d'Azur	  2022 - 2023
 
 Contract doctoral student                                                                                 Sophia Antipolis, France  
 
-  GREDEG- CNRS - Université Côte d’Azur                                                                                     2018 - 2022  
+ GREDEG- CNRS - Université Côte d’Azur                                                                                     2018 - 2022  
   
 International doctoral contract in economics - IDEX  
 
